@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Leke Ayeko.
+- I code Graphics, Physics 'n stuffs. 
